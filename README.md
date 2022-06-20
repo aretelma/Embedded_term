@@ -3,3 +3,4 @@
 --------------------------------
 
 ### 영상 링크
+https://youtube.com/shorts/NxBOS9vGaaQ?feature=share
